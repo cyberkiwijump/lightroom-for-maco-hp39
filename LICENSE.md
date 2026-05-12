@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Lightroom for macOS helper with exclusive Lightroom for macOS Helper | text-animation + raw-file-support. Featuring text-animation and raw-file-support, it's the
 
 
 
